@@ -18,9 +18,10 @@
 
 ####  联系我们
 如果你有任何的疑问请联系我们
-我们的用户交流QQ群号是:125473042
-邮箱 :  23323231@qq.com
+1.我们的用户交流QQ群号是:125473042 
+2.邮箱 :  23323231@qq.com
 
 ####  Contact us
-Please feel free to contact us for any questions. Email: 23323231@qq.com 
-Our QQ chat Gruppe is 125473042
+f you have any question , please  feel free to contact us in following ways.   
+1.QQ Group chat : 125473042.      
+2.Email: 2332331@qq.com
